@@ -1,4 +1,4 @@
-# 1 место 🥇 IT Purple Hack - Alpha Bank 🏦📈🙋🏻‍♂️
+# 1 место 🥇 IT Purple Hack - Alfa Bank 🏦📈🙋🏻‍♂️
 ## Team: MISIS FOUND HACK
 ## Модель прогнозирования продуктового кластера клиента
 
